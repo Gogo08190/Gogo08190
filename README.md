@@ -1,5 +1,5 @@
 ## Hey! 👋
-I'm Gogo08, youtuber, streamer and web developper !
+I'm Gogo08, youtuber, streamer, minecraft modpack maker and web developper !
 
 ## &#x1f4c8; GitHub Stats
 
